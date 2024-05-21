@@ -1,4 +1,4 @@
-# Gerenciador de tarefas em Nuevem ☁️📝
+# Gerenciador de tarefas em Nuvem ☁️📝
 <br>
 <h2>Trabalhando nisso, aguarde...👩‍💻🔨</h2>
 <br>
